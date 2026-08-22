@@ -1,4 +1,3 @@
-<div align="center">
+<img width="400" height="225" alt="heart_emoji" src="https://github.com/user-attachments/assets/a1b6ac76-a412-4842-80c6-0677f02aa1ca" /><div align="center">
 
-![hi](https://static.wikia.nocookie.net/in-birth/images/2/21/Ed025ogr.png/revision/latest/scale-to-width-down/1000?cb=20250222162930)
 ![GitHub Views](https://komarev.com/ghpvc/?username=dualdependency&amp;color=904976&amp;style=flat&amp;label=rizzed)
