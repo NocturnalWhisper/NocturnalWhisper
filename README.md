@@ -2,6 +2,8 @@
 
 <img width="1280" height="720" alt="maxresdefault (1)" src="https://github.com/user-attachments/assets/877c3e2f-19e2-40c2-8af9-c4a37f78c2f7" />
 
+$$\color{#746384}{test}$$
+
   <p align="center">
   <a href="https://uni2ogre.straw.page/">strawpage</a> + <a href="https://crimsonvowies.atabook.org/">ata</a> 
 <div align="center">
