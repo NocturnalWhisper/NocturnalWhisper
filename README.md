@@ -13,6 +13,7 @@ $${\color{#a92e2e}''Only\space I\space see\space you\space deeper\space than\spa
 
 $${\color{#a92e2e}''You're\space awful..''\space \color{#5aa2b2}''I\space LOVE\space YOU!!''}$$
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Cormorant+Garamond&pause=1000&color=B92A2A&background=2C000024&width=435&lines=Although%2C+it+is+so+wasteful+keeping+all+of+it+inside+me..)](https://git.io/typing-svg)
 
   <p align="center">
   <a href="https://uni2ogre.straw.page/">strawpage</a> + <a href="https://crimsonvowies.atabook.org/">ata</a> 
