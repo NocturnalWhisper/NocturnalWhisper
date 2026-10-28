@@ -1,6 +1,11 @@
 <div align="center">
 ꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷꒷꒦꒷꒦꒷
+<img width="604" height="448" alt="download" src="https://github.com/user-attachments/assets/130c5fab-3cc0-4b2c-aef6-6a14094947a0" />
 
+<div align="center">
+˖⊹┈┈┈♰┈┈┈⊹˖⊹┈┈┈♰┈┈┈⊹˖⊹┈┈┈♰┈┈┈⊹
+  
+  <div align="center">
 $${\color{#7a5ba3}⊹ pt\space purposes\space only ❯❯\space \color{#928b9c}  c+h\space allowed,\space w2i\space if\space afk\space .\space ݁₊\space ⊹\space .}$$
 
 $${\color{#7a5ba3}Crimson\space ,\space Marie\space \color{#4f4a56}or\space \color{#7a5ba3} Iris}$$
@@ -16,7 +21,6 @@ $${\color{#a92e2e}''Only\space I\space see\space you\space deeper\space than\spa
 
 
 <div align="center">
-˖⊹┈┈┈♰┈┈┈⊹˖⊹┈┈┈♰┈┈┈⊹˖⊹┈┈┈♰┈┈┈⊹
 
 
 
@@ -24,7 +28,8 @@ $${\color{#a92e2e}''Only\space I\space see\space you\space deeper\space than\spa
 
 
 
-<img width="604" height="448" alt="download" src="https://github.com/user-attachments/assets/130c5fab-3cc0-4b2c-aef6-6a14094947a0" />
+
+
   +:★:+*━━━*+:★:+*━━━*+:★:+*+:★:+*━━━*+:★:+*━━━*+:★:+*+:★:+
   <div align="center">
 
