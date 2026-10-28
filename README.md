@@ -26,14 +26,9 @@ $${\color{#a92e2e}''Only\space I\space see\space you\space deeper\space than\spa
 <div align="center">
 
 
-
-
-
-
-
-
-
   +:★:+*━━━*+:★:+*━━━*+:★:+*+:★:+*━━━*+:★:+*━━━*+:★:+*+:★:+
+    <div align="center">
+  @sharpestvictory roy it's over boy im beating your ass out voi
   <div align="center">
   <img width="800" height="450" alt="download (1)" src="https://github.com/user-attachments/assets/cbf0c5c3-544e-4180-93fc-88a21b74db93" />
 
