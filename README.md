@@ -35,5 +35,7 @@ $${\color{#a92e2e}''Only\space I\space see\space you\space deeper\space than\spa
 
   +:★:+*━━━*+:★:+*━━━*+:★:+*+:★:+*━━━*+:★:+*━━━*+:★:+*+:★:+
   <div align="center">
+  <img width="800" height="450" alt="download (1)" src="https://github.com/user-attachments/assets/cbf0c5c3-544e-4180-93fc-88a21b74db93" />
+
 
 ![GitHub Views](https://komarev.com/ghpvc/?username=dualdependency&amp;color=928b9c&amp;style=flat&amp;label=Cutes)
