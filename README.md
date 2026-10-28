@@ -8,6 +8,7 @@
 ˖⊹┈┈┈♰┈┈┈⊹˖⊹┈┈┈♰┈┈┈⊹˖⊹┈┈┈♰┈┈┈⊹
   
   <div align="center">
+
 $${\color{#7a5ba3}⊹ pt\space purposes\space only ❯❯\space \color{#928b9c}  c+h\space allowed,\space w2i\space if\space afk\space .\space ݁₊\space ⊹\space .}$$
 
 $${\color{#7a5ba3}Crimson\space ,\space Marie\space \color{#4f4a56}or\space \color{#7a5ba3} Iris}$$
