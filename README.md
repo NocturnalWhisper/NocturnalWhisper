@@ -12,8 +12,6 @@ $${\color{#a92e2e}''Only\space I\space see\space you\space deeper\space than\spa
 <img width="99" height="85" alt="image-removebg-preview" src="https://github.com/user-attachments/assets/75c33c9d-6795-41cc-8401-0fb260026269" /><img width="75" height="85" alt="image-removebg-preview (2)" src="https://github.com/user-attachments/assets/5b7c8a88-b188-48dd-b564-a385187f9d05" />
 
 
-$${\color{#a92e2e}''You're\space awful..''\space \color{#5aa2b2}''I\space LOVE\space YOU!!''}$$
-
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Coral+Pixels&size=19&pause=1000&color=F70000&background=5D02029A&width=435&lines=You+did+it+unto+me%2C+and+now+I'm+doin'+it+unto+you)](https://git.io/typing-svg)
 
 
