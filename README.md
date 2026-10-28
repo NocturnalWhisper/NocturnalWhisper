@@ -14,7 +14,7 @@ $${\color{#a92e2e}''Only\space I\space see\space you\space deeper\space than\spa
 
 $${\color{#a92e2e}''You're\space awful..''\space \color{#5aa2b2}''I\space LOVE\space YOU!!''}$$
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Cormorant+Garamond&pause=1000&color=B92A2A&background=2C000024&width=435&lines=Although%2C+it+is+so+wasteful+keeping+all+of+it+inside+me..)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Coral+Pixels&size=19&pause=1000&color=F70000&background=5D02029A&width=435&lines=You+did+it+unto+me%2C+and+now+I'm+doin'+it+unto+you)](https://git.io/typing-svg)
 
 
 <div align="center">
@@ -26,7 +26,7 @@ $${\color{#a92e2e}''You're\space awful..''\space \color{#5aa2b2}''I\space LOVE\s
 
 
 
-  <img width="3501" height="2727" alt="Konachan com - 19373 demon gothic len loli melty_blood shingetsutan_tsukihime succubus twins vampire white_len" src="https://github.com/user-attachments/assets/8f00e9c3-f18f-429a-8792-bc51ff9d56ed" />
+<img width="604" height="448" alt="download" src="https://github.com/user-attachments/assets/130c5fab-3cc0-4b2c-aef6-6a14094947a0" />
   +:★:+*━━━*+:★:+*━━━*+:★:+*+:★:+*━━━*+:★:+*━━━*+:★:+*+:★:+
   <div align="center">
 
