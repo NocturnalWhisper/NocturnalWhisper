@@ -23,7 +23,7 @@ $${\color{#a92e2e}''Only\space I\space see\space you\space deeper\space than\spa
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Coral+Pixels&size=19&pause=1000&color=F70000&background=5D02029A&width=435&lines=You+did+it+unto+me%2C+and+now+I'm+doin'+it+unto+you)](https://git.io/typing-svg)
 
    <div align="center">
-  @sharpestvictory roy it's over boy im beating your ass out up
+  @sharpestvictory roy it's over boy im beating your ass uppppp voi
   <div align="center">
   <img width="800" height="450" alt="download (1)" src="https://github.com/user-attachments/assets/cbf0c5c3-544e-4180-93fc-88a21b74db93" />
 
