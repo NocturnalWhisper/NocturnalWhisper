@@ -13,7 +13,7 @@ $${\color{#7a5ba3}⊹ pt\space purposes\space only ❯❯\space \color{#928b9c} 
 
 $${\color{#7a5ba3}Crimson\space ,\space Marie\space \color{#4f4a56}or\space \color{#7a5ba3} Iris}$$
 <p align="center">
-  <a href="https://uni2ogre.straw.page/">strawpage</a> + <a href=https://crimsonvania.atabook.org/>ata</a>
+  <a href="https://uni2ogre.straw.page/">strawpage</a> + <a href=https://crimsonvania.atabook.org/>ata</a> bro ima remake my sp i swear its outdated af
 
 $${\color{#a92e2e}''Only\space I\space see\space you\space deeper\space than\space you\space see\space yourself.''\space \color{#5aa2b2}''Wipe\space away\space my\space tears\space with\space the\space scarf\space of\space love...''}$$
 <div align="center">
