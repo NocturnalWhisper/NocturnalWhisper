@@ -1,6 +1,5 @@
 <div align="center">
-ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
-  
+  ━━━━━━━━━━━⊱⋆⊱·✶·⊰⋆⊰ ━━━━━━━━━━━
   <div align="center">
 <img width="604" height="448" alt="download" src="https://github.com/user-attachments/assets/130c5fab-3cc0-4b2c-aef6-6a14094947a0" />
 
