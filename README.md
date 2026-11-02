@@ -21,7 +21,7 @@ $${\color{#a92e2e}''Only\space I\space see\space you\space deeper\space than\spa
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Coral+Pixels&size=18&duration=2500&pause=100&color=F70000&background=5D5D5D80&width=350&height=40&lines=I+don't+need+no+one%2C+screwing+up+my+fun;Over+the+counter%2C+fill+that+prescription!)](https://git.io/typing-svg)
 
- <a href="https://github.com/pt-everypony">@pt-everypony</a> <a href="https://github.com/music-town">@music-town</a>
+ <a href="https://github.com/pt-everypony">@pt-everypony</a> <a href="https://github.com/music-town">@music-town</a> <a href="https://github.com/pt-ship-nominations">@pt-ship-nominations</a> THANK YOU 
  
 ⊰═══════════════════⊱⊰═══════════════════⊱⊰═══════════════════⊱
  
