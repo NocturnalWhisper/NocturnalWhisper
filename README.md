@@ -1,7 +1,7 @@
 <div align="center">
   ━━━━━━━━━━━⊱⋆⊱·✶·⊰⋆⊰ ━━━━━━━━━━━
   <div align="center">
-<img width="500" height="448" alt="download" src="https://github.com/user-attachments/assets/130c5fab-3cc0-4b2c-aef6-6a14094947a0" />
+<img width="604" height="448" alt="download" src="https://github.com/user-attachments/assets/bb3aa197-4732-4fa6-8274-894618378e49" />
 
 <table>
 <tr>
@@ -14,7 +14,9 @@
   
  <div align="center">
 
-$${\color{#d44f5f}⊹ pt\space purposes\space only ❯❯\space \color{#4488d1}  c+h\space allowed,\space w2i\space if\space afk\space .\space ݁₊\space ⊹\space .}$$
+$${\color{#d44f5f}⊹ pt\space purposes\space only ❯❯}$$
+
+$${\color{#4488d1}  c+h\space allowed,\space w2i\space if\space afk\space .\space ݁₊\space ⊹\space .}$$
 
 $${\color{#4488d1}Crimson\space ,\space Marie\space \color{#d44f5f}or\space \color{#4488d1} Iris}$$
 <p align="center">
