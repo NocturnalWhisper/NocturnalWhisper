@@ -1,4 +1,7 @@
 <div align="center">
+<img src=https://64.media.tumblr.com/1ebf3b07c70b1bbe136c860ff6eaa0f0/1539e010ce8fa124-43/s2048x3072/1143ee11ada82a9889a50c530a38140097bf26ed.gifv width=670>
+  
+<div align="center">
   ━━━━━━━━━━━⊱⋆⊱·✶·⊰⋆⊰ ━━━━━━━━━━━
   <div align="center">
 <img width="604" height="448" alt="download" src="https://github.com/user-attachments/assets/bb3aa197-4732-4fa6-8274-894618378e49" />
