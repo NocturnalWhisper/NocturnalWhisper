@@ -6,7 +6,7 @@
 <div align="center">
 
   
-  <div align="center">
+ <div align="center">
 
 $${\color{#d44f5f}⊹ pt\space purposes\space only ❯❯\space \color{#4488d1}  c+h\space allowed,\space w2i\space if\space afk\space .\space ݁₊\space ⊹\space .}$$
 
@@ -21,7 +21,11 @@ $${\color{#a92e2e}''Only\space I\space see\space you\space deeper\space than\spa
 
 
  <a href="https://github.com/pt-everypony">@pt-everypony</a> <a href="https://github.com/music-town">@music-town</a> <a href="https://github.com/pt-ship-nominations">@pt-ship-nominations</a> THANK YOU 
- 
+
+
+
+
+
 ⊰═══════════════════⊱⊰═══════════════════⊱⊰═══════════════════⊱
  
    <div align="center">
