@@ -8,9 +8,9 @@
   
   <div align="center">
 
-$${\color{#7a5ba3}⊹ pt\space purposes\space only ❯❯\space \color{#928b9c}  c+h\space allowed,\space w2i\space if\space afk\space .\space ݁₊\space ⊹\space .}$$
+$${\color{#d44f5f}⊹ pt\space purposes\space only ❯❯\space \color{#4488d1}  c+h\space allowed,\space w2i\space if\space afk\space .\space ݁₊\space ⊹\space .}$$
 
-$${\color{#7a5ba3}Crimson\space ,\space Marie\space \color{#4f4a56}or\space \color{#7a5ba3} Iris}$$
+$${\color{#4488d1}Crimson\space ,\space Marie\space \color{#d44f5f}or\space \color{#4488d1} Iris}$$
 <p align="center">
   <a href="https://uni2ogre.straw.page/">strawpage</a> + <a href=https://crimsonvania.atabook.org/>ata</a>
 
