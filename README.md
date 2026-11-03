@@ -39,7 +39,8 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
 </table>
 
 
-
+<div align="center">
+<img width="150" height="100" alt="overlay-image-removebg-preview" src="https://github.com/user-attachments/assets/d6c037e5-4be7-4160-b6f1-7d26dbe79a81" />
 
 
 ⊰═══════════════════⊱⊰═══════════════════⊱⊰═══════════════════⊱
@@ -48,6 +49,9 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
   <a href="https://github.com/sharpestvictory">@sharpestvictory</a> roy it's over boy im beating your ass uppppp voi 👇 👇 (it takes a moment to load)
   <div align="center">
   <img width="800" height="450" alt="download (1)" src="https://github.com/user-attachments/assets/cbf0c5c3-544e-4180-93fc-88a21b74db93" />
+
+
+
 
 
 <div align="center">
