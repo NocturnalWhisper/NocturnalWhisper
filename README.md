@@ -4,7 +4,7 @@
 <img width="604" height="448" alt="download" src="https://github.com/user-attachments/assets/130c5fab-3cc0-4b2c-aef6-6a14094947a0" />
 
 <div align="center">
-˖⊹┈┈┈♰┈┈┈⊹˖⊹┈┈┈♰┈┈┈⊹˖⊹┈┈┈♰┈┈┈⊹
+
   
   <div align="center">
 
@@ -12,14 +12,13 @@ $${\color{#7a5ba3}⊹ pt\space purposes\space only ❯❯\space \color{#928b9c} 
 
 $${\color{#7a5ba3}Crimson\space ,\space Marie\space \color{#4f4a56}or\space \color{#7a5ba3} Iris}$$
 <p align="center">
-  <a href="https://uni2ogre.straw.page/">strawpage</a> + <a href=https://crimsonvania.atabook.org/>ata</a> bro ima remake my sp i swear its outdated af
+  <a href="https://uni2ogre.straw.page/">strawpage</a> + <a href=https://crimsonvania.atabook.org/>ata</a>
 
 $${\color{#a92e2e}''Only\space I\space see\space you\space deeper\space than\space you\space see\space yourself.''\space \color{#4488d1}''Wipe\space away\space my\space tears\space with\space the\space scarf\space of\space love...''}$$
 <div align="center">
 <img width="99" height="85" alt="image-removebg-preview" src="https://github.com/user-attachments/assets/75c33c9d-6795-41cc-8401-0fb260026269" /><img width="75" height="85" alt="image-removebg-preview (2)" src="https://github.com/user-attachments/assets/5b7c8a88-b188-48dd-b564-a385187f9d05" />
 
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Coral+Pixels&size=18&duration=2500&pause=100&color=F70000&background=5D5D5D80&width=350&height=40&lines=I+don't+need+no+one%2C+screwing+up+my+fun;Over+the+counter%2C+fill+that+prescription!)](https://git.io/typing-svg)
 
  <a href="https://github.com/pt-everypony">@pt-everypony</a> <a href="https://github.com/music-town">@music-town</a> <a href="https://github.com/pt-ship-nominations">@pt-ship-nominations</a> THANK YOU 
  
@@ -34,7 +33,6 @@ $${\color{#a92e2e}''Only\space I\space see\space you\space deeper\space than\spa
 <div align="center">
 
 
-  +:★:+*━━━*+:★:+*━━━*+:★:+*+:★:+*━━━*+:★:+*━━━*+:★:+*+:★:+
 
 
 ![GitHub Views](https://komarev.com/ghpvc/?username=dualdependency&amp;color=928b9c&amp;style=flat&amp;label=Cutes)
