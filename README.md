@@ -41,7 +41,7 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Redaction+50&duration=2500&pause=900&color=C00D0D&background=5D020200&width=350&lines=As+we+lock+arms+and+skip+away;They+wish+that+they+were+geeks+in+love)](https://git.io/typing-svg)
 
 <div align="center">
-<img width="150" height="100" alt="overlay-image-removebg-preview" src="https://github.com/user-attachments/assets/d6c037e5-4be7-4160-b6f1-7d26dbe79a81" /><img width="150" height="100" alt="overlay-image__1_-removebg-preview" src="https://github.com/user-attachments/assets/09606bb1-928f-479c-a6cf-f44bb635f0e4" /><img width="150" height="100" alt="overlay-image__3_-removebg-preview" src="https://github.com/user-attachments/assets/0b240c0e-8d57-44eb-925e-c4e5946f0aac" />
+<img width="150" height="100" alt="stamp (1)" src="https://github.com/user-attachments/assets/035a13f6-608a-4fbb-836b-f4a56d1a9af5" /><img width="174" height="150" alt="overlay-image-removebg-preview" src="https://github.com/user-attachments/assets/d6c037e5-4be7-4160-b6f1-7d26dbe79a81" /><img width="150" height="100" alt="stamp (2)" src="https://github.com/user-attachments/assets/2e89936c-1a92-4eff-b8a0-dad61f5791b5" />
 
 
 
