@@ -30,7 +30,7 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
 <img width="99" height="85" alt="image-removebg-preview" src="https://github.com/user-attachments/assets/75c33c9d-6795-41cc-8401-0fb260026269" /><img width="75" height="85" alt="image-removebg-preview (2)" src="https://github.com/user-attachments/assets/5b7c8a88-b188-48dd-b564-a385187f9d05" />
 
 
- <a href="https://github.com/pt-everypony">@pt-everypony</a> <a href="https://github.com/music-town">@music-town</a> <a href="https://github.com/pt-ship-nominations">@pt-ship-nominations</a> thank you 
+ <a href="https://github.com/pt-everypony">@pt-everypony</a> <a href="https://github.com/music-town">@music-town</a> <a href="https://github.com/pt-ship-nominations">@pt-ship-nominations</a> thank 
 
  <td align="center">
 <img width="1862" height="2454" alt="CroppedSkidsFather" src="https://github.com/user-attachments/assets/fb4a874a-74a7-4dd4-a6d4-e759fc14c8da" />
