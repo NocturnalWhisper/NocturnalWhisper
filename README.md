@@ -23,7 +23,7 @@ $${\color{#4488d1}  c+h\space allowed,\space w2i\space if\space afk\space .\spac
 
 $${\color{#4488d1}Crimson\space ,\space Marie\space \color{#d44f5f}or\space \color{#4488d1} Iris}$$
 <p align="center">
-  <a href="https://uni2ogre.straw.page/">strawpage</a> + <a href=https://crimsonvania.atabook.org/>ata</a>
+  <a href="https://crimsonlite.straw.page">strawpage</a> + <a href=https://crimsonvania.atabook.org/>ata</a>
 
 $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\space YOU!\''}$$
 <div align="center">
