@@ -38,6 +38,9 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
 </tr>
 </table>
 
+![GitHub Views](https://komarev.com/ghpvc/?username=dualdependency&amp;color=910f0f&amp;style=flat&amp;label=SAINTS)
+
+
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Redaction+50&duration=2500&pause=900&color=C00D0D&background=5D020200&width=350&lines=As+we+lock+arms+and+skip+away;They+wish+that+they+were+geeks+in+love)](https://git.io/typing-svg)
 
 <div align="center">
@@ -60,6 +63,3 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
 <div align="center">
 
 
-
-
-![GitHub Views](https://komarev.com/ghpvc/?username=dualdependency&amp;color=928b9c&amp;style=flat&amp;label=Cutes)
