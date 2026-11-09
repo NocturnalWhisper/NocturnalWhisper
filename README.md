@@ -30,8 +30,7 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
 <img width="99" height="85" alt="image-removebg-preview" src="https://github.com/user-attachments/assets/75c33c9d-6795-41cc-8401-0fb260026269" /><img width="75" height="85" alt="image-removebg-preview (2)" src="https://github.com/user-attachments/assets/5b7c8a88-b188-48dd-b564-a385187f9d05" />
 
 
- <a href="https://github.com/pt-everypony">@pt-everypony</a> <a href="https://github.com/music-town">@music-town</a> <a href="https://github.com/pt-ship-nominations">@pt-ship-nominations</a>
- <a href="https://github.com/pony-town-nominations">@pony-town-nominations</a> <a href=https://github.com/Knox-Event>@Knox-Event</a> <a href=https://github.com/pts-r0ttingeyes>@pts-r0ttingeyes</a>  thank u...
+ <a href="https://github.com/pt-everypony">@pt-everypony</a> <a href="https://github.com/pony-town-nominations">@pony-town-nominations</a> <a href=https://github.com/Knox-Event>@Knox-Event</a> <a href=https://github.com/pts-r0ttingeyes>@pts-r0ttingeyes</a> <a href="https://github.com/music-town">@music-town</a> <a href="https://github.com/pt-ship-nominations">@pt-ship-nominations</a> thank u...
 
  <td align="center">
 <img width="1862" height="2454" alt="CroppedSkidsFather" src="https://github.com/user-attachments/assets/fb4a874a-74a7-4dd4-a6d4-e759fc14c8da" />
@@ -51,11 +50,20 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
 
 
 ⊰═══════════⊱⊰═════════════════⊱⊰═══════════⊱
- 
+<div align="center">
+  <img width="423" height="30" alt="image" src="https://github.com/user-attachments/assets/b50cd0a7-9688-4c11-a696-84ee3b243d3c" /> 
+ <img width="433" height="41" alt="image" src="https://github.com/user-attachments/assets/659bbcd2-a953-4b37-b569-beb18e4bbdc8" />
+<img width="272" height="67" alt="overlay-image (4)" src="https://github.com/user-attachments/assets/4beb9918-79f2-4896-bd9b-85b89aab8b5c" />
+<img width="342" height="39" alt="image" src="https://github.com/user-attachments/assets/76eea122-ed6d-4a7a-9537-3dfad373a983" />
+<img width="458" height="26" alt="image" src="https://github.com/user-attachments/assets/5a6dc46a-930e-471e-b3e0-877264cae346" />
+<img width="622" height="43" alt="image" src="https://github.com/user-attachments/assets/2fcf09ab-ad9d-480a-93b2-48c5de43dc68" />
+
+████████████████████████
    <div align="center">
   <a href="https://github.com/sharpestvictory">@sharpestvictory</a> roy it's over boy im beating your ass uppppp voi 👇 👇 (it takes a moment to load)
   <div align="center">
   <img width="800" height="450" alt="download (1)" src="https://github.com/user-attachments/assets/cbf0c5c3-544e-4180-93fc-88a21b74db93" />
+
 
 
 
