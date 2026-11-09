@@ -41,7 +41,7 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
 ![GitHub Views](https://komarev.com/ghpvc/?username=dualdependency&amp;color=910f0f&amp;style=flat&amp;label=SAINTS)
 
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Redaction+50&duration=2500&pause=900&color=C00D0D&background=5D020200&width=350&lines=As+we+lock+arms+and+skip+away;They+wish+that+they+were+geeks+in+love)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Redaction+50&duration=2500&pause=1000&color=AE0321&background=5D020200&width=240&lines=Where+all+my+envy%2C;All+my+resentment%2C;Shall+be+laid.....+bare!)](https://git.io/typing-svg)
 
 <div align="center">
 <img width="150" height="100" alt="stamp (1)" src="https://github.com/user-attachments/assets/035a13f6-608a-4fbb-836b-f4a56d1a9af5" /><img width="174" height="150" alt="overlay-image-removebg-preview" src="https://github.com/user-attachments/assets/d6c037e5-4be7-4160-b6f1-7d26dbe79a81" /><img width="150" height="100" alt="stamp (2)" src="https://github.com/user-attachments/assets/2e89936c-1a92-4eff-b8a0-dad61f5791b5" />
