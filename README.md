@@ -57,6 +57,8 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
 <img width="342" height="39" alt="image" src="https://github.com/user-attachments/assets/76eea122-ed6d-4a7a-9537-3dfad373a983" />
 <img width="458" height="26" alt="image" src="https://github.com/user-attachments/assets/5a6dc46a-930e-471e-b3e0-877264cae346" />
 <img width="622" height="43" alt="image" src="https://github.com/user-attachments/assets/2fcf09ab-ad9d-480a-93b2-48c5de43dc68" />
+<img width="741" height="36" alt="image" src="https://github.com/user-attachments/assets/fb7c3410-b770-48f5-9756-8adb3aa62384" />
+
 
 ████████████████████████
    <div align="center">
