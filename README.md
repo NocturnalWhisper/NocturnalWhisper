@@ -31,7 +31,7 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
 
 
  <a href="https://github.com/pt-everypony">@pt-everypony</a> <a href="https://github.com/music-town">@music-town</a> <a href="https://github.com/pt-ship-nominations">@pt-ship-nominations</a>
- <a href="https://github.com/pony-town-nominations">@pony-town-nominations</a> thank 
+ <a href="https://github.com/pony-town-nominations">@pony-town-nominations</a> <a href=https://github.com/Knox-Event>@Knox-Event</a> thank 😂🤝
 
  <td align="center">
 <img width="1862" height="2454" alt="CroppedSkidsFather" src="https://github.com/user-attachments/assets/fb4a874a-74a7-4dd4-a6d4-e759fc14c8da" />
