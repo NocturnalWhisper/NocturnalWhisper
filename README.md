@@ -40,7 +40,8 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
 
 ![GitHub Views](https://komarev.com/ghpvc/?username=dualdependency&amp;color=910f0f&amp;style=flat&amp;label=SAINTS)
 
-
+<div align="center">
+  
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Redaction+50&duration=2500&pause=1000&color=AE0321&background=5D020200&width=240&lines=Where+all+my+envy%2C;All+my+resentment%2C;Shall+be+laid.....+bare!)](https://git.io/typing-svg)
 
 <div align="center">
