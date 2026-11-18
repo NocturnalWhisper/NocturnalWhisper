@@ -1,8 +1,7 @@
 <div align="center">
-<img src=https://64.media.tumblr.com/1ebf3b07c70b1bbe136c860ff6eaa0f0/1539e010ce8fa124-43/s2048x3072/1143ee11ada82a9889a50c530a38140097bf26ed.gifv width=670>
+<img width="1196" height="213" alt="output-onlinepngtools" src="https://github.com/user-attachments/assets/ee8b5d56-2ae0-4d49-b8fd-55b85821a0b3" />
   
-<div align="center">
-━━━◥◣♦◢◤━━━
+
   <div align="center">
 <img width="604" height="448" alt="download" src="https://github.com/user-attachments/assets/bb3aa197-4732-4fa6-8274-894618378e49" />
 
@@ -48,9 +47,9 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
 <img width="150" height="100" alt="stamp (1)" src="https://github.com/user-attachments/assets/035a13f6-608a-4fbb-836b-f4a56d1a9af5" /><img width="174" height="150" alt="overlay-image-removebg-preview" src="https://github.com/user-attachments/assets/d6c037e5-4be7-4160-b6f1-7d26dbe79a81" /><img width="150" height="100" alt="stamp (2)" src="https://github.com/user-attachments/assets/2e89936c-1a92-4eff-b8a0-dad61f5791b5" />
 
 
+<img width="540" height="304" alt="output-onlinegiftools (3)" src="https://github.com/user-attachments/assets/17cbfc9d-eeb1-47a6-b355-81360ffd1903" />
 
 
-⊰═══════════⊱⊰═════════════════⊱⊰═══════════⊱
 <div align="center">
   <img width="423" height="30" alt="image" src="https://github.com/user-attachments/assets/b50cd0a7-9688-4c11-a696-84ee3b243d3c" /> 
  <img width="433" height="41" alt="image" src="https://github.com/user-attachments/assets/659bbcd2-a953-4b37-b569-beb18e4bbdc8" />
@@ -60,14 +59,14 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
   <img width="381" height="36" alt="image" src="https://github.com/user-attachments/assets/7c17b4be-2444-4e57-9825-e280d37798ea" />
 
 <div align="center">
-  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+⊰═══════════⊱⊰═════════════════⊱⊰═══════════⊱
   <div align="center">
 <img width="458" height="26" alt="image" src="https://github.com/user-attachments/assets/5a6dc46a-930e-471e-b3e0-877264cae346" />
 <img width="622" height="43" alt="image" src="https://github.com/user-attachments/assets/2fcf09ab-ad9d-480a-93b2-48c5de43dc68" />
 <img width="741" height="36" alt="image" src="https://github.com/user-attachments/assets/fb7c3410-b770-48f5-9756-8adb3aa62384" />
 
+  ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
    <div align="center">
   <a href="https://github.com/sharpestvictory">@sharpestvictory</a> roy it's over boy im beating your ass uppppp voi 👇 👇 (it takes a moment to load)
   <div align="center">
