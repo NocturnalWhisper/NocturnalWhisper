@@ -47,7 +47,7 @@ $${\color{#a92e2e}''You're\space awful..''}$$ $${\color{#4488d1}''I\space LOVE\s
 <img width="150" height="100" alt="stamp (1)" src="https://github.com/user-attachments/assets/035a13f6-608a-4fbb-836b-f4a56d1a9af5" /><img width="174" height="150" alt="overlay-image-removebg-preview" src="https://github.com/user-attachments/assets/d6c037e5-4be7-4160-b6f1-7d26dbe79a81" /><img width="150" height="100" alt="stamp (2)" src="https://github.com/user-attachments/assets/2e89936c-1a92-4eff-b8a0-dad61f5791b5" />
 
 
-<img width="540" height="304" alt="output-onlinegiftools (3)" src="https://github.com/user-attachments/assets/17cbfc9d-eeb1-47a6-b355-81360ffd1903" />
+<img width="820" height="123" alt="output-onlinegiftools (3)" src="https://github.com/user-attachments/assets/17cbfc9d-eeb1-47a6-b355-81360ffd1903" />
 
 
 <div align="center">
